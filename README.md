@@ -40,5 +40,5 @@ Butter mit Zucker und Vanillezucker verrühren. Eier unterrühren. Zartbittersch
 Die Mulden eines Muffinblechs mit Förmchen auslegen. Mit einem Eisportionierer den Teig auf die Förmchen verteilen. Die restlichen gehackten Schokostückchen auf den Muffins verteilen. Im vorgeheizten Ofen ca. 25 Min backen.
 
 **Link zum Rezept**
-[Hier](https://www.einfachbacken.de/rezepte/schokomuffins-saftig-schnell)g
+[Hier](https://www.einfachbacken.de/rezepte/schokomuffins-saftig-schnell)
 
